@@ -24,6 +24,11 @@
 8-9 tiri, 280m sviluppo, Ovest, 5c max, 5b ob 
 
 [gulliver](https://www.gulliver.it/itinerari/pania-secca-promenade/##main)
+## Cresta Nord
+Via Alpinistica
+
+[relazione 1 e tracce gps](http://escursionismo360.blogspot.com/2018/10/pania-secca-cresta-nord-pizzo-delle.html), 
+[relazione 2](https://www.versiliatoday.it/2017/06/06/denti-della-pania-secca-impegnativo-divertente/)
 ## Falesia Rifugio Rossi
 [link vie](http://www.rifugiorossi.com/falesia.html)
 ## Monte Procinto 
