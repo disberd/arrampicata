@@ -24,6 +24,8 @@
 8-9 tiri, 280m sviluppo, Ovest, 5c max, 5b ob 
 
 [gulliver](https://www.gulliver.it/itinerari/pania-secca-promenade/##main)
+## Falesia Rifugio Rossi
+[link vie](http://www.rifugiorossi.com/falesia.html)
 ## Monte Procinto 
 ### Via Tropicana 
 4 tiri, 85m sviluppo, Est, 6a+ max, 5c ob
@@ -47,7 +49,7 @@
 [gulliver](https://www.gulliver.it/itinerari/procinto-monte-diedro-delle-sorprese/)
 ## Pizzo Delle Saette
 ### Via Maestri, Torre Francesca, 
-5 tiri, 150m sviluppo, Oveset, 5c max, 5c ob
+5 tiri, 150m sviluppo, Ovest, 5c max, 5c ob
 
 [gulliver](https://www.gulliver.it/itinerari/francesca-torre-al-pizzo-delle-saette-via-maestri/##main)
 ## Monte Matanna
