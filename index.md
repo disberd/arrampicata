@@ -23,9 +23,11 @@
 ### Promenade, 2 Dente 
 8-9 tiri, 280m sviluppo, Ovest, 5c max, 5b ob  
 [gulliver](https://www.gulliver.it/itinerari/pania-secca-promenade/##main)  
-[youtube 1](https://www.youtube.com/watch?v=kxYfdNaJPnk)
-[youtube 2](https://www.youtube.com/watch?v=LdGZDwiW5fg)
-[youtube 3](https://www.youtube.com/watch?v=k18GMkGNXDA)
+[relazione 2](http://www.apuaneverticali.it/joomla/arrampicata/alpi-apuane/12-ii-dente-della-pania-secca-via-promenade)  
+[youtube 1](https://www.youtube.com/watch?v=kxYfdNaJPnk)  
+[youtube 2](https://www.youtube.com/watch?v=LdGZDwiW5fg)  
+[youtube 3](https://www.youtube.com/watch?v=k18GMkGNXDA)  
+[youtube 4 (2019)](https://www.youtube.com/watch?v=iGhVghK2lOM)  
 ## Cresta Nord
 Via Alpinistica
 
@@ -58,8 +60,9 @@ Via Alpinistica
 ### Via Maestri, Torre Francesca, 
 5 tiri, 150m sviluppo, Ovest, 5c max, 5c ob  
 [gulliver](https://www.gulliver.it/itinerari/francesca-torre-al-pizzo-delle-saette-via-maestri/##main)  
+[relazione 2](http://www.quotazero.com/forum/viewtopic.php?t=6275)  
 [youtube 1](https://www.youtube.com/watch?v=LXNj3ck7kCQ)  
-[youtube 2](https://www.youtube.com/watch?v=7p2M8bvQ4vk)
+[youtube 2](https://www.youtube.com/watch?v=7p2M8bvQ4vk)  
 ## Monte Matanna
 ### Via Annalisa 
 7 tiri, 200m sviluppo, Sud, 6a max, 5c ob
