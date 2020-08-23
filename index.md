@@ -21,9 +21,11 @@
 [gulliver](https://www.gulliver.it/itinerari/corchia-monte-aldebaran/)
 ## Pania Secca 
 ### Promenade, 2 Dente 
-8-9 tiri, 280m sviluppo, Ovest, 5c max, 5b ob 
-
-[gulliver](https://www.gulliver.it/itinerari/pania-secca-promenade/##main)
+8-9 tiri, 280m sviluppo, Ovest, 5c max, 5b ob  
+[gulliver](https://www.gulliver.it/itinerari/pania-secca-promenade/##main)  
+[youtube 1](https://www.youtube.com/watch?v=kxYfdNaJPnk)
+[youtube 2](https://www.youtube.com/watch?v=LdGZDwiW5fg)
+[youtube 3](https://www.youtube.com/watch?v=k18GMkGNXDA)
 ## Cresta Nord
 Via Alpinistica
 
@@ -56,7 +58,8 @@ Via Alpinistica
 ### Via Maestri, Torre Francesca, 
 5 tiri, 150m sviluppo, Ovest, 5c max, 5c ob  
 [gulliver](https://www.gulliver.it/itinerari/francesca-torre-al-pizzo-delle-saette-via-maestri/##main)  
-[youtube 1](https://www.youtube.com/watch?v=LXNj3ck7kCQ)
+[youtube 1](https://www.youtube.com/watch?v=LXNj3ck7kCQ)  
+[youtube 2](https://www.youtube.com/watch?v=7p2M8bvQ4vk)
 ## Monte Matanna
 ### Via Annalisa 
 7 tiri, 200m sviluppo, Sud, 6a max, 5c ob
