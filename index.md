@@ -54,9 +54,9 @@ Via Alpinistica
 [gulliver](https://www.gulliver.it/itinerari/procinto-monte-diedro-delle-sorprese/)
 ## Pizzo Delle Saette
 ### Via Maestri, Torre Francesca, 
-5 tiri, 150m sviluppo, Ovest, 5c max, 5c ob
-
-[gulliver](https://www.gulliver.it/itinerari/francesca-torre-al-pizzo-delle-saette-via-maestri/##main)
+5 tiri, 150m sviluppo, Ovest, 5c max, 5c ob  
+[gulliver](https://www.gulliver.it/itinerari/francesca-torre-al-pizzo-delle-saette-via-maestri/##main)  
+[youtube 1](https://www.youtube.com/watch?v=LXNj3ck7kCQ)
 ## Monte Matanna
 ### Via Annalisa 
 7 tiri, 200m sviluppo, Sud, 6a max, 5c ob
@@ -71,3 +71,4 @@ Via Alpinistica
 7 tiri, 200m sviluppo, Sud-Ovest, 5c max, 5b ob
 
 [gulliver](https://www.gulliver.it/itinerari/nona-monte-via-dei-fiorentini/##main)
+ss 
